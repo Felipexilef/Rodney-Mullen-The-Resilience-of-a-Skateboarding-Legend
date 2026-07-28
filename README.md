@@ -54,7 +54,7 @@ Como o freestyle influenciou o estilo dele no street?
 
 
 
-Mini Guia de Estudo:
+Mini Guia de Estudos:
 
 
 
